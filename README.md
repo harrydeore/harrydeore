@@ -11,6 +11,6 @@ Skills:
 
 Connect with me:
 
-LinkedIn: [LinkedIn Profile](https://www.linkedin.com/in/harish-deore-b4a7a5229/)
+[LinkedIn Profile](https://www.linkedin.com/in/harish-deore-b4a7a5229/)
 
 🚀
