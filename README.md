@@ -9,6 +9,7 @@ Data structures and algorithms
 Team player
 Collaborative spirit
 Eager learner
+
 Connect with me:
 
 LinkedIn: https://www.linkedin.com/in/harish-deore-b4a7a5229/
